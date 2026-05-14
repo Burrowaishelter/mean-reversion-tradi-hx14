@@ -1,4 +1,4 @@
-# 
+# Get the ultimate mean reversion trading bot with AI-powered mean reversion trading bot Addon | candlestick-patterns + technical-indicators. Featuring candlestick-patterns and
 
 
 
